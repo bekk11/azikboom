@@ -1,0 +1,2 @@
+# azikboom
+azizga tuwuntirish
